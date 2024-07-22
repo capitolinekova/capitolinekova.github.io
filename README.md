@@ -3,3 +3,4 @@
 - [https://x.com/CapitolineKova](https://x.com/CapitolineKova)
 - [https://www.quora.com/profile/Capitoline-Kovalyova](https://www.quora.com/profile/Capitoline-Kovalyova)
 - [https://medium.com/@capitolinekovalyova](https://medium.com/@capitolinekovalyova)
+- [https://www.quora.com/How-might-Trumps-stance-on-gun-rights-impact-legal-interpretations-of-the-Second-Amendment](https://www.quora.com/How-might-Trumps-stance-on-gun-rights-impact-legal-interpretations-of-the-Second-Amendment)
