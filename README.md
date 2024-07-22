@@ -1,0 +1,5 @@
+- [https://www.reddit.com/user/NeighborhoodNo6751/](https://www.reddit.com/user/NeighborhoodNo6751/)
+- [https://www.youtube.com/channel/UCxtcBgnW8zXMM9xLYzpVWaQ](https://www.youtube.com/channel/UCxtcBgnW8zXMM9xLYzpVWaQ)
+- [https://x.com/CapitolineKova](https://x.com/CapitolineKova)
+- [https://www.quora.com/profile/Capitoline-Kovalyova](https://www.quora.com/profile/Capitoline-Kovalyova)
+- [https://medium.com/@capitolinekovalyova](https://medium.com/@capitolinekovalyova)
